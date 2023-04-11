@@ -19,3 +19,8 @@ Emo lol
 Crying Bc i called him EMO LMFAOOO
 
 ![image](https://user-images.githubusercontent.com/98287650/231044876-a3a3852d-b724-4a97-8f41-7a0364abeb6a.png)
+
+Bro is 3 LMFAO
+
+![image](https://user-images.githubusercontent.com/98287650/231045220-ef1d0119-c1a9-46f4-bf10-1483a3b22dd7.png)
+
