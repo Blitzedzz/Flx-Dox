@@ -22,5 +22,6 @@ Crying Bc i called him EMO LMFAOOO
 
 Bro is 3 LMFAO
 
-![image](https://user-images.githubusercontent.com/98287650/231045220-ef1d0119-c1a9-46f4-bf10-1483a3b22dd7.png)
+![image](https://user-images.githubusercontent.com/98287650/231045274-f0902a40-aa35-49be-9839-c95ab94b5cdb.png)
+
 
