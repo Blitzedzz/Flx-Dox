@@ -20,6 +20,11 @@ Crying Bc i called him EMO LMFAOOO
 
 ![image](https://user-images.githubusercontent.com/98287650/231044876-a3a3852d-b724-4a97-8f41-7a0364abeb6a.png)
 
+Bro Tryin To Do esex
+
+![image](https://user-images.githubusercontent.com/98287650/231045706-93056163-ebec-4008-a2fc-1b93595ee3d5.png)
+
+
 Bro is 3 LMFAO
 
 ![image](https://user-images.githubusercontent.com/98287650/231045274-f0902a40-aa35-49be-9839-c95ab94b5cdb.png)
