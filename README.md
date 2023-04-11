@@ -15,3 +15,7 @@ Got Mad At me for making a dox 💀
 Emo lol
 
 ![image](https://user-images.githubusercontent.com/98287650/231044612-326da894-912a-4d6f-b94a-91e99591cb01.png)
+
+Crying Bc i called him EMO LMFAOOO
+
+![image](https://user-images.githubusercontent.com/98287650/231044876-a3a3852d-b724-4a97-8f41-7a0364abeb6a.png)
