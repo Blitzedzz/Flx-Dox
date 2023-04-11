@@ -24,4 +24,6 @@ Bro is 3 LMFAO
 
 ![image](https://user-images.githubusercontent.com/98287650/231045274-f0902a40-aa35-49be-9839-c95ab94b5cdb.png)
 
+💀 Gay lmfao
 
+![image](https://user-images.githubusercontent.com/98287650/231045446-417bb8f9-09d6-4748-a421-29f1eda1b603.png)
